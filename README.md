@@ -1,0 +1,2 @@
+# LATIHAN
+Aku
